@@ -14,7 +14,6 @@ A hisotira do meu pai tambem e marcada por varias anedotas e hitorias obscuras, 
 A adolescencia da minha mae nao teve luxos, muito trabalho domestico e foi criada por minha bisavo. Pele clara cabelo castanho, minha mae deu azar de nascer em uma familia desestruturada, pois ela linda em sua juventude tinha condicoes de casar com algum homem muito rico, virar artista ou algo do tipo. Aproximadamente em seus 17 anos o convite veio. Que convite ? Voce deve estar se perguntando caro leitor, ate hoje me pergunto como seria a vida da minha mae se ele nao tivesse aceitado o convite da prima, que minha mae considera como tia por ser mais velha, para vir morar e trabalhar aqui em brasilia.  
  
 daiksndiasd
-dsadas
-
+dsada
 
 
